@@ -2,7 +2,7 @@
 
 Final Year CSE Student | Siddaganga Institute of Technology | June 2026
 Full Stack Intern at TechnoMedia Software Solutions
-Based in Bangalore | Targeting Mumbai
+Based in Bangalore |Ready to Relocate
 suhas.1si22cs181@gmail.com | 9353872418
 
 
